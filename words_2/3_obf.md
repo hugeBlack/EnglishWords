@@ -1,0 +1,91 @@
+ministration
+fall short
+hoax
+augment
+interchangeable
+congruent
+incongruous   incongruity
+crisp
+profess
+apathy
+languish
+shore up
+demoralize
+fictitious
+fictionalize
+potency
+prepossessing
+squelch
+counterbalance
+entangle
+---
+buoy
+catchy
+authenticate
+panoply
+malady
+acerbic
+accent
+accentuate
+philosophy
+reflect
+crude
+tenacious
+untenable
+vengeful
+episodic
+stump
+virtuosity
+unfeeling
+equable
+unalloyed
+---
+rampant
+cronyism
+shun
+leniency
+divide
+blunt
+cover
+coverage
+trope
+paucity  modicum
+permeate
+permeable  porous
+bound
+unbounded
+foretell
+compelling
+dispense
+dispense with
+indispensable
+prescient
+---
+hamper
+unexampled
+sully
+unsullied
+cogent
+baffle
+animate
+animated
+distressing
+excoriate
+rather
+rather than
+or rather
+antagonistic
+antagonism
+antagonist
+antagonize
+misrepresent
+account
+accountability
+---
+inflate
+inflated
+commend
+ramshackle
+provocative
+provocation
+thought-provoking

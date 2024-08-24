@@ -1,0 +1,63 @@
+abound
+somnolent
+stymie
+forestall
+chic
+doctrinaire
+feign  feigned
+graviety
+gravitate
+dilute dilution
+acquiesce
+egregious
+overwrought
+peddle
+galvanize
+bristle
+anything but
+roost
+counterforce
+sententious
+---
+antedate
+sonorous
+decided
+nepotistic
+diametrically
+cantankerous
+animadversion
+empiricism
+provision
+provisional
+obviate
+degrade
+opinionated
+denigrate
+exuberant
+evenhanded
+aggrieved
+exploit
+expoiltation
+consume
+---
+austute
+austerity
+impracticable
+charlatan
+lionize
+stipulate
+hidebound
+douse
+panegyric
+curtail  retrench
+stern
+waver v unwavering
+reserved
+impugn
+foment
+lengthy
+euphemism
+ebullient
+overarching
+imminent
+---
